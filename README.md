@@ -1,3 +1,4 @@
-## понял
-<img width="630" height="430" alt="image" src="https://github.com/user-attachments/assets/2c9904ec-046a-4dc8-8c16-9b49d4b19c40" />
+## понял (не голоден)
+<img width="546" height="345" alt="image" src="https://github.com/user-attachments/assets/32b96969-4bc5-4dae-af4c-58a44e729d65" />
+ENTP so7w6 VLEF тупизм аутизм не читайте отпишитесь никогда не заходите в гитхаб больше
 
